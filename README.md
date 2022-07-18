@@ -1,3 +1,4 @@
 - ### [Сайт для "Открытие Брокер Абакан"](https://citadel-invest.ru/)
 - ### [День открытых дверей НГУ](https://disk.yandex.ru/i/GQNR3kY5D79pOQ)
 - ### [Кокая-то презентация...](https://disk.yandex.ru/i/DmC9i8cCc9j1Kg)
+- ### [Всякая всячина](https://disk.yandex.ru/d/Qon7eutKR45kYA)
