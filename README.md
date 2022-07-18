@@ -1,2 +1,2 @@
-- ## [Сайт для "Открытие Брокер Абакан"](https://citadel-invest.ru/)
-- ## [День открытых дверей НГУ](https://github.com/SofyaCheboltasova/Design/blob/main/%D0%94%D0%B5%D0%BD%D1%8C%20%D0%BE%D1%82%D0%BA%D1%80%D1%8B%D1%82%D1%8B%D1%85%20%D0%B4%D0%B2%D0%B5%D1%80%D0%B5%D0%B9%20%D0%9D%D0%93%D0%A3.pdf)
+- ### [Сайт для "Открытие Брокер Абакан"](https://citadel-invest.ru/)
+- ### [День открытых дверей НГУ](https://disk.yandex.ru/i/GQNR3kY5D79pOQ)
